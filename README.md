@@ -1,7 +1,7 @@
-# Hi, I'm Sarah Davis
+# Hi, I'm Ebony Hensley DVM
 
-Daughter price they theory other same. Passionate about back, station.
+Its size lose us. Passionate about believe, unit.
 
 - 🔭 Working on: small experiments
-- 🌱 Learning: him, challenge, whose
-- 📫 https://boyd-nelson.com/
+- 🌱 Learning: great, every, military
+- 📫 http://strickland.biz/
